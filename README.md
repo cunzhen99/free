@@ -4,4 +4,4 @@
 
 ##网址1: http://d1co0v4hc8422t.cloudfront.net
 ##网址2: http://d14ylvr7sejjxb.cloudfront.net
-##网址3: http://d35jszxgfkpzqm.cloudfront.net
+##网址3: http://d1fnk3la77207b.cloudfront.net
