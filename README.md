@@ -2,6 +2,6 @@
 # 电脑、手机一键翻墙
 ### （2015/4/21 更新）
 
-##网址1: https://d14ylvr7sejjxb.cloudfront.net
-##网址2: https://d1fnk3la77207b.cloudfront.net
-##网址3: https://d27om4g6kgyoo1.cloudfront.net
+##网址1: http://d3cst2udvxyp0z.cloudfront.net
+##网址2: http://d1fnk3la77207b.cloudfront.net
+##网址3: http://d3tkswt0010mr8.cloudfront.net
