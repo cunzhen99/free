@@ -4,3 +4,5 @@
 
 ##网址1: https://d2wxbl3n5enu1h.cloudfront.net
 ##网址2: https://d24jvoszq6yixc.cloudfront.net
+
+###（收藏本页短网址：http://git.io/vfL6U）
