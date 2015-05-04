@@ -6,4 +6,4 @@
 ##网址2: http://d1nevwk32vuspu.cloudfront.net
 ##网址3: http://d23dnqongm395p.cloudfront.net
 
-###本页短网址：http://is.gd/zhen99 或 http://x.co/zhen99
+###本页短网址：http://dwz.cn/free99 或 http://x.co/zhen99
