@@ -10,11 +10,11 @@
 ***
 
 ### 电脑版翻墙软件：
-###自由门电脑版: https://git.io/fgp
-###无界电脑版: https://git.io/HNvvvQ
+###1.自由门电脑版: https://git.io/fgp
+###2.无界电脑版: https://git.io/HNvvvQ
 
 ***
 
 ###手机安卓版翻墙软件：
 ###1.自由门安卓版: https://git.io/fgma
-###2.无界一点通安卓版: https://git.io/2S1IBQ
+###2.无界一点通: https://git.io/2S1IBQ
