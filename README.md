@@ -1,11 +1,11 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-####（2015/05/06 更新）
+####（2015/05/07 更新）
 ###本页短网址: http://is.gd/zhen99 或 http://x.co/zhen99
 
 ### 一键翻墙+翻墙软件：
-###网址1: https://d3bacmqxdkwwzy.cloudfront.net
-###网址2: https://dw37d4mzfmj05.cloudfront.net
+###网址1: https://dw37d4mzfmj05.cloudfront.net
+###网址2: https://d3gxuywhg1mu34.cloudfront.net
 
 ***
 
