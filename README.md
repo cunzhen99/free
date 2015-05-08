@@ -4,8 +4,8 @@
 ###本页短网址: http://is.gd/zhen99 或 http://is.gd/free99
 
 ### 一键翻墙+翻墙软件：
-###网址1: http://d3gxuywhg1mu34.cloudfront.net
-###网址2: http://dw6we1jggaq7b.cloudfront.net
+###网址1: https://d3gxuywhg1mu34.cloudfront.net
+###网址2: https://dw6we1jggaq7b.cloudfront.net
 
 ***
 
