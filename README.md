@@ -7,7 +7,7 @@
 ##<a href="https://d3gxuywhg1mu34.cloudfront.net" target="_blank">网址1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dw6we1jggaq7b.cloudfront.net" target="_blank">网址2</a>
 
 ## 电脑版翻墙软件：
-##1. <a href="https://d2cg8k1io1rfwt.cloudfront.net/fgs.php?fid=fg753p.zip" target="_blank">自由门电脑版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://d2cg8k1io1rfwt.cloudfront.net/fgs.php?fid=u1405.zip" target="_blank">无界电脑版</a>
+##1. <a href="https://d2cg8k1io1rfwt.cloudfront.net/fga01.php?fid=fg753p.zip" target="_blank">自由门电脑版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://d2cg8k1io1rfwt.cloudfront.net/fga01.php?fid=u1405.zip" target="_blank">无界电脑版</a>
 
 ##手机安卓版翻墙软件：
-##1. <a href="https://d2cg8k1io1rfwt.cloudfront.net/fgs.php?fid=fgma32.apk" target="_blank">自由门安卓版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://d2cg8k1io1rfwt.cloudfront.net/fgs.php?fid=um3.1.apk" target="_blank">无界一点通</a>
+##1. <a href="https://d2cg8k1io1rfwt.cloudfront.net/fga01.php?fid=fgma32.apk" target="_blank">自由门安卓版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://d2cg8k1io1rfwt.cloudfront.net/fga01.php?fid=um3.1.apk" target="_blank">无界一点通</a>
