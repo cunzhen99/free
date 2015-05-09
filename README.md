@@ -1,7 +1,7 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
 ####（2015/05/09 更新）
-###本页短网址: http://is.gd/zhen99 或 http://is.gd/free99
+###本页短网址: http://is.gd/free99 或 http://is.gd/zhen99
 
 ## 一键翻墙+翻墙软件：
 ##<a href="https://d3gxuywhg1mu34.cloudfront.net" target="_blank">网址1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dw6we1jggaq7b.cloudfront.net" target="_blank">网址2</a>
