@@ -10,7 +10,7 @@
 ***
 
 ### 电脑版翻墙软件：
-###1.自由门电脑版: https://git.io/fgp
+###<strong>1.<a href="https://d2cg8k1io1rfwt.cloudfront.net/fgs.php?fid=fg753p.zip" target="_blank">自由门电脑版</a></strong>
 ###2.无界电脑版: https://git.io/HNvvvQ
 
 ***
