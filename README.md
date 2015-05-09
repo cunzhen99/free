@@ -10,8 +10,8 @@
 ***
 
 ### 电脑版翻墙软件：
-###1.自由门电脑: http://is.gd/fg75301
-###2.无界电脑版: https://git.io/HNvvvQ
+###1. <a href="https://d2cg8k1io1rfwt.cloudfront.net/fgs.php?fid=fg753p.zip" target="_blank">自由门电脑版</a>
+###2.无界电脑版: http://is.gd/u140501
 
 ***
 
