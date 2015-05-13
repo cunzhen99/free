@@ -1,7 +1,7 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
 ####（2015/05/13 更新）
-###本页短网址: http://git.io/vfL6U （区分大小写）
+###本页短网址: https://is.gd/free99 （区分大小写）
 
 ## 一键翻墙+翻墙软件（推荐）：
 ##<a href="https://d1qf6zusax0jfj.cloudfront.net" target="_blank">网址1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d1m1clyv5ways4.cloudfront.net" target="_blank">网址2</a>
