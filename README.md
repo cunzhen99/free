@@ -16,4 +16,10 @@
 
 ***
 
-###本页短网址: https://git.io/vfL6U （区分大小写）
+###最新网址二维码：
+![翻墙(新)](https://d3b07nb9ldi3br.cloudfront.net/pic/yjfq1.png)
+
+###永久网址二维码：
+![翻墙(新)](https://d3b07nb9ldi3br.cloudfront.net/pic/yjfq0.png)
+
+###本页短网址: https://git.io/vfL6U （区分大小写，请收藏）
