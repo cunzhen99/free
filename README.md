@@ -5,7 +5,7 @@
 
 ***
 
-## 一键翻墙：<a href="https://d2g1qjq283gw8u.cloudfront.net" target="_blank">网址1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3e6qfhusa3vhe.cloudfront.net" target="_blank">网址2</a>
+## 一键翻墙：<a href="https://d3e6qfhusa3vhe.cloudfront.net" target="_blank">网址1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3cnzdqnl5l09d.cloudfront.net" target="_blank">网址2</a>
 
 ## 解密资讯：<a href="https://d3cnzdqnl5l09d.cloudfront.net/zhen99" target="_blank">网址1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d2187grypo2gfr.cloudfront.net/zhen99" target="_blank">网址2</a>
 
