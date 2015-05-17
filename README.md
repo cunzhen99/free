@@ -2,9 +2,9 @@
 # 电脑、手机一键翻墙
 （2015/05/16 更新）
 
-最新短网址：https://x.co/zhen99
+#####最新短网址：https://x.co/zhen99
 
-永久短网址：https://x.co/free99
+#####永久短网址：https://x.co/free99
 
 ***
 
@@ -22,13 +22,12 @@
 
 ***
 
-最新短网址：https://x.co/zhen99
-二维码：
+#####最新短网址：https://x.co/zhen99
+#####最新网址二维码：
 ![翻墙(新)](https://d3b07nb9ldi3br.cloudfront.net/pic/yjfq1.png)
 
 ***
 
-永久短网址：https://x.co/free99
-二维码：
-###永久网址二维码：
+#####永久短网址：https://x.co/free99
+#####永久网址二维码：
 ![翻墙](https://d3b07nb9ldi3br.cloudfront.net/pic/yjfq0.png)
