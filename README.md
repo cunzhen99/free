@@ -2,7 +2,7 @@
 # 电脑、手机一键翻墙
 （2015/05/16 更新）
 
-####最新短网址：<a href="https://x.co/zhen99" target="_blank">https://x.co/zhen99</a>
+####<a href="https://x.co/zhen99" target="_blank">最新短网址：https://x.co/zhen99</a>
 
 ####永久短网址：<a href="https://x.co/free99" target="_blank">https://x.co/free99</a>
 
