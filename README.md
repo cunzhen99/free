@@ -23,7 +23,7 @@
 ***
 
 ####最新短网址：https://x.co/zhen99
-####二维码(图片固定，网址自动更新)：
+####二维码（图片不变，网址自动更新）:
 ![翻墙(新)](https://d3b07nb9ldi3br.cloudfront.net/pic/yjfq1.png)
 
 ***
