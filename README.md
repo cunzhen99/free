@@ -12,7 +12,7 @@
 
 ## 解密资讯：<a href="https://d2187grypo2gfr.cloudfront.net/zhen99.php" target="_blank">网址1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d1i1t0zigjhqe6.cloudfront.net/zhen99.php" target="_blank">网址2</a>
 
-## 我要三退：<a href="https://d2187grypo2gfr.cloudfront.net/zs.php/url/d3dnletw7e118x.cloudfront.net/8" target="_blank">网址1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dvlkyogqbetr1.cloudfront.net/ogST.aspx" target="_blank">网址2</a>
+## 我要三退：<a href="https://d2187grypo2gfr.cloudfront.net/zs.php/url/d146mstxox9k4x.cloudfront.net/8" target="_blank">网址1</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dvlkyogqbetr1.cloudfront.net/ogST.aspx" target="_blank">网址2</a>
 
 ***
 
