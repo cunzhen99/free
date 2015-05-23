@@ -7,7 +7,7 @@
 ####永久短网址：https://x.co/free99
 
 ***
-###5月22日最新发布：<a href="https://dh8f4fwk3pif2.cloudfront.net/fga01.php?fid=fg754p.zip" target="_blank">自由门7.54版(电脑版)
+###5月22日最新发布：<a href="https://dh8f4fwk3pif2.cloudfront.net/fga01.php?fid=fg754p.zip" target="_blank">自由门7.54版(电脑版)</a>
 
 #  1.&nbsp;&nbsp;<a href="https://dh8f4fwk3pif2.cloudfront.net" target="_blank">一键翻墙</a>
 
