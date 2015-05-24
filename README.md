@@ -4,7 +4,7 @@
 
 ####最新短网址：https://x.co/zhen99
 
-####永久短网址：https://x.co/free99
+####永久短网址：https://git.io/free99
 
 ***
 ###<a href="https://dh8f4fwk3pif2.cloudfront.net/fga01.php?fid=fg754p.zip" target="_blank">5月22日最新发布：自由门7.54版(电脑版)</a>
@@ -33,6 +33,7 @@
 
 ***
 
-####永久短网址：https://x.co/free99
+####永久短网址：https://git.io/free99
 ####永久网址二维码：
 ![翻墙](https://dh8f4fwk3pif2.cloudfront.net/pic/yjfq0.png)
+
