@@ -8,15 +8,11 @@
 
 ***
 
-#  1.&nbsp;&nbsp;<a href="https://d1990rmk2ck7n4.cloudfront.net" target="_blank">一键翻墙</a>
+#  一键翻墙：
 
-***
+#  &nbsp;&nbsp;&nbsp;&nbsp;1.&nbsp;&nbsp;<a href="https://d1990rmk2ck7n4.cloudfront.net" target="_blank">最新网址</a>
 
-#  2.&nbsp;&nbsp;<a href="https://d1990rmk2ck7n4.cloudfront.net/zhen99.php" target="_blank">解密资讯</a>
-
-***
-
-#  3.&nbsp;&nbsp;<a href="https://d1990rmk2ck7n4.cloudfront.net/zs.php/url/d3r9vf059h4454.cloudfront.net/8" target="_blank">我要三退</a>
+#  &nbsp;&nbsp;&nbsp;&nbsp;2.&nbsp;&nbsp;<a href="https://x.co/free99" target="_blank">动态网址</a>
 
 ***
 
