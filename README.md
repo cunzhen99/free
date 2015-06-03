@@ -2,9 +2,11 @@
 # 电脑、手机一键翻墙
 （2015/06/03 更新）
 
-####固定短网址1：https://git.io/free99
+####永久短网址：https://git.io/free99
 
-####固定短网址2：https://x.co/free99
+####固定短网址：https://x.co/free99
+
+####三退短网址：https://x.co/santui
 
 ***
 
@@ -13,6 +15,7 @@
 #  &nbsp;&nbsp;&nbsp;&nbsp;1.&nbsp;&nbsp;<a href="https://d1990rmk2ck7n4.cloudfront.net" target="_blank">最新网址</a>
 
 #  &nbsp;&nbsp;&nbsp;&nbsp;2.&nbsp;&nbsp;<a href="https://x.co/free99" target="_blank">动态网址</a>
+
 
 ***
 
