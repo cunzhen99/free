@@ -2,17 +2,21 @@
 # 电脑、手机一键翻墙
 （2015/06/04 更新）
 
-####永久短网址：https://git.io/free99
+***
+
+#  &nbsp;&nbsp;<a href="https://dwvob1mylz161.cloudfront.net/freetz.php" target="_blank">翻墙网址1</a>
+
+#  &nbsp;&nbsp;<a href="https://d2wsc19gffngcm.cloudfront.net/freetz.php?id=1" target="_blank">翻墙网址2</a>
+
+#  &nbsp;&nbsp;<a href="https://d2wsc19gffngcm.cloudfront.net/freetz.php?id=2" target="_blank">翻墙网址3</a>
+
+***
+
+####固定短网址：https://git.io/free99
 
 ####固定短网址：https://x.co/free99
 
 ####三退短网址：https://x.co/santui
-
-***
-
-#  一键翻墙：
-
-#  &nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dwvob1mylz161.cloudfront.net/freetz.php?id=1" target="_blank">网址1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dwvob1mylz161.cloudfront.net/freetz.php?id=2" target="_blank">网址2</a>
 
 ***
 
@@ -22,8 +26,8 @@
 
 ***
 
-####永久短网址：https://git.io/free99
-####永久二维码：
+####固定短网址：https://git.io/free99
+####固定二维码：
 ![翻墙1](https://dwvob1mylz161.cloudfront.net/pic/yjfq0.png)
 
 ***
