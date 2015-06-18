@@ -6,6 +6,10 @@
 
 ***
 
+### <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=um3.2.apk" target="_blank">6月15日最新发布：无界一点通3.2（安卓版）</a>
+
+***
+
 # <a href="https://dwvob1mylz161.cloudfront.net/freetz.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dggchoya06912.cloudfront.net/dttz01.php/618" target="_blank">动态网1</a>
 
 # <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw02" target="_blank">动态网2</a>
@@ -22,7 +26,7 @@
 
 ### 电脑版翻墙软件：1. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=fg754p.zip" target="_blank">自由门</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=u1405.zip" target="_blank">无界</a>
 
-### 手机安卓版翻墙软件：1. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=fgma32.apk" target="_blank">自由门安卓版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=um3.1.apk" target="_blank">无界一点通</a>
+### 手机安卓版翻墙软件：1. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=fgma32.apk" target="_blank">自由门安卓版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=um3.2.apk" target="_blank">无界一点通</a>
 
 ***
 
