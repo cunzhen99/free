@@ -6,7 +6,7 @@
 
 ***
 
-#### <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=u1501.zip" target="_blank">最新发布(6月24日)：无界浏览15.01</a>
+#  <a href="https://github.com/cunzhen99/zhen-news/blob/master/README.md" target="_blank">【转载】起诉江泽民 谁能挡得住</a>
 
 ***
 
@@ -24,7 +24,7 @@
 
 ***
 
-### 电脑版翻墙软件：1. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=fg754p.zip" target="_blank">自由门</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=u1501.zip" target="_blank">无界</a>
+### 电脑版翻墙软件：1. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=fg754p.zip" target="_blank">自由门</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=u1501.zip" target="_blank">最新发布(6月24日)：无界浏览15.01</a>
 
 ### 手机安卓版翻墙软件：1. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=fgma32.apk" target="_blank">自由门安卓版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=um3.2.apk" target="_blank">无界一点通</a>
 
