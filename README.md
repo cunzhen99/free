@@ -1,12 +1,12 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2015/07/06 更新）
+（2015/07/07 更新）
 
 ####本页短网址：https://git.io/free99
 
 ***
 
-# <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3uzd7cb4l12h3.cloudfront.net/dttz_01.php/706" target="_blank">动态网1</a>
+# <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://22.edns.biz/go/1/index.php?q=ufMNDnQulLtZX7oNFTm4AAe2LDgv98EhVdlMMFeYqVOnMiX%2BmsH5eS2JnE4%3D&hl=2e9" target="_blank">动态网1</a>
 
 # <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw02" target="_blank">动态网2</a>
 
