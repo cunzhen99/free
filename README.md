@@ -1,14 +1,14 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-####（动态网高速网址已修复，2015/08/20更新）
+（2015/08/21更新）
 
 ####本页短网址：https://git.io/free99
 
 ***
 
-# <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3uzd7cb4l12h3.cloudfront.net/dttz_01.php/820" target="_blank">动态网1</a>
+# <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://v4.jygbbs8.eu.org/821" target="_blank">动态网</a>
 
-# <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw02" target="_blank">动态网2</a>
+# <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3gx914igpb0uy.cloudfront.net/do/z_ak/tbBANDAbDvYLx0X/" target="_blank">无界网</a>
 
 ***
 
