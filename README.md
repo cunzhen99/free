@@ -4,19 +4,9 @@
 
 #####（微信如打不开，请转到浏览器中打开）
 
-####固定短网址1：https://git.io/free
+##固定短网址1：https://git.io/free
 
-####固定短网址2：http://x.co/fqw99
-
-
-***
-
-
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/fq1/blob/master/README.md" target="_blank">翻墙特殊入口一</a>
-
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/fq2/blob/master/README.md" target="_blank">翻墙特殊入口二</a>
-
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/fq3/blob/master/README.md" target="_blank">翻墙特殊入口三</a>
+##固定短网址2：http://x.co/fqw99
 
 
 ***
